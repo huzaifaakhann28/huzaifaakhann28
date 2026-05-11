@@ -33,7 +33,7 @@
 
 🎨 Portfolio: https://-/
 
-💼 LinkedIn: https://www.linkedin.com/in/Huzaifa-Khan-47374422a/
+💼 LinkedIn: https://-/
 
 📷 Instagram : https://www.instagram.com/huzaifa.khan___/
 
